@@ -1,6 +1,6 @@
 # 👾 Maël Mangata
 
-> 19 ans – Étudiant à Epitech (PGE) – Fan de robots, d’IA et de claviers qui font *clack clack*.
+> 20 ans – Étudiant à Epitech (PGE) – Fan de robots, d’IA et de claviers qui font *clack clack*.
 
 ---
 
